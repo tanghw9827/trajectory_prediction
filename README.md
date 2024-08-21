@@ -4,7 +4,7 @@
 
 ![alt text](image-1.png)
 
-### 小论文（Major revise）
+### 小论文
 
 ![alt text](image-2.png)
 
